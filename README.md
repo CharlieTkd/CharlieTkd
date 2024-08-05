@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @CharlieTkd
 - 👀 I’m interested in ... kickboxing
 - 🌱 I’m currently learning ... kickboxing
-- 💞️ I’m looking to collaborate on ... kickboxing
+- 💞️ I’m looking to collaborate on ... im not sure
 - 📫 How to reach me ... charlie3murray@gmail.com
 - 😄 Pronouns: ... he/him
 - ⚡ Fun fact: ... i am good at kick boxing
